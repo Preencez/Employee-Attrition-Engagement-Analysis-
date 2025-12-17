@@ -56,3 +56,8 @@ Align training investments with performance outcomes
 Evaluate engagement drivers beyond compensation
 
 Support data-driven workforce planning
+
+👤 Author
+
+Berida Toyin Faith
+Data Analyst | BI Analyst | Workforce Analytics
